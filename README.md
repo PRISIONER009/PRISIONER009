@@ -5,6 +5,7 @@ mostly dniuf or off-tab, whispers can help if wanna int with me.
 im SHY and i'm little JUST LITTLE awkward sooo sometimes i need tone tags yes sorry 
 i dont interact first sometimes. i can be extremely introvert buuut other times i have my moments of extrovert if i can say, i like ponywatching but i can forget you easly SORRY
 ![image](https://github.com/user-attachments/assets/11a9db92-7bb2-489f-aa18-a0f0bba144c1)
+
 OMAE NO TAME NI YATTE YARU YOOOOOOOOOOO
 otsukare mata kyou mo junbi shita chuu no chuunoge egao de
 genkai shikato shite ganbatteta nda na
